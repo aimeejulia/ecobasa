@@ -35,7 +35,7 @@ In 2016 we:
     * shared the gift of giving in different events and workshops. Book us now!
 
 Please support us to continue our work! Invest in a better future now with a small donation
-On Heroes & Friends you can see how to support us with your time and ressources and there you can support us by sharing posts on facebook!
+On Heroes & Friends you can see how to support us with your time and resources and there you can support us by sharing posts on facebook!
 
 Happy giving!
 
@@ -54,8 +54,8 @@ Building a culture of trust and support with gift-economy
 ------------
 We believe that the world can be different.
 For every problem, there is a solution. For every need, there is an offer. We just need to make the right connections.
-There are many communities and creative initiatives that offer sustainable solutions for the greatest challanges we face today and reshape our reality. They all generate wealth beyond money and create a system that is highly adaptable to our dynamic needs and resources.
-Imagine all these initiatives and people working together, sharing their knowledge and resources, creating a new, life-affirming economy! Valuing relationships, ressources and responsability a gift-economy is much more sustainable to grow independent communities. There is no debt, just surplus.
+There are many communities and creative initiatives that offer sustainable solutions for the greatest challenges we face today and reshape our reality. They all generate wealth beyond money and create a system that is highly adaptable to our dynamic needs and resources.
+Imagine all these initiatives and people working together, sharing their knowledge and resources, creating a new, life-affirming economy! Valuing relationships, resources and responsibility a gift-economy is much more sustainable to grow independent communities. There is no debt, just surplus.
 The coordination of ressources, people and knowledge needs the appropriate technology to be effective and accesible.
 
 We at ecobasa are working for this vision. By connecting people and sustainable communities in a global gift-economy network we facilitate the communication and exchange of experiences, knowledges, services and resources. 
@@ -73,7 +73,7 @@ We create opportunities where people can meet to share and experience the power 
     These convergences take place in communities for them to benefit: Every day there are two hours collective working time in the schedule where all participants build and work for the community - in one week, a lot can be done with 100 people!
     Gift economy auctions: a fun and practical way to find answers to your wishes by activating the group's untapped resources. 
 
-With this platform, the gift caravans and convergences can be self-organized all around the world and the gift-economy network is beeing created.
+With this platform, the gift caravans and convergences can be self-organized all around the world and the gift-economy network is being created.
 
 You can use the platform to
 ------------
@@ -116,21 +116,25 @@ Join the gift economy movement!
 
 Why do we need ecobasa?
 ------------
-Hopefully more and more people realize that the way the privileged western mainstream society is living, is creating pollution, poverty, artificial dependency and fear. 
-We live in a stable global eco-system. We are dependent on this system as it supplies us with air, water, land and food. Not yet fully understanding this complex system, we act like we would own it in stupid, unsustainable ways, that damage its current state and therefor ourselves within it.
+Hopefully more and more people realize that the privileged western mainstream society way of life is creating pollution, poverty, artificial dependency and fear. 
+
+We live in a stable global eco-system. We are dependent on this system as it supplies us with air, water, land and food. Not yet fully understanding this complex system, we act like we would own it in stupid, unsustainable way, that damages its current state and therefor ourselves within it.
+
 As the nature of complex systems is always looking for stability there are mechanisms sustaining it. As we as human race are mainly acting like parasites we should be able to see the effects of that behaviour soon.
 
-There are millions of people around the world who are actively searching for alternatives, likeminded people and knowledge how to live an eco-sustainable life. More and more feel that its time to change their own life towards an environment caring way.
-The awareness spreads and the knowledge is already there. What lacks this movement, is the right tools for accessing knowledge, connect with other people to join forces and organize the eco-revolution. Facebook will just not let you do that, as well as any product of exploit-capitalistic structures.
+There are millions of people around the world who are actively searching for alternatives, likeminded people and knowledge on how to live an eco-sustainable life. More and more feel that its time to change their own life towards an environment caring way.
+The awareness spreads and the knowledge is already there. What this movement lack is the right tools for accessing knowledge, connect with other people to join forces and organize the eco-revolution. Facebook will just not let you do that, as well as any product of exploit-capitalistic structures.
+
 What we need is a system that is structured differently from its core - that is ecobasa.org
 
 In our research we found that self sustaining micro-economies like ecovillages would be a good alternative against globalized consumerism.
+
 Living in sustainable communities converts our footprints into something creative that make the world a better place. 
 
 As this lifestyle also spreads the awareness of where the stuff that we eat and heat comes from and what it actually needs to produce what we consume, it should naturally lead to a humble way of simple living.
-Living close to nature, perceiving its rhythms and learning to respect and understand our surrounding is essential to live in harmony with the local/global eco-system. Also living close to each other with a sense of community is not just good for mental health, but also offers support for the individual when in need and enables greater resilience.
-If we manage to life naturaly like a tree in a forrest, there is no waste, everything is useful for somebody else.
-The only problem is, that we life seperated, like stones in a desert. In our culture there is no inspiration and guidance, even no hope on how to do it different.
+Living close to nature, perceiving its rhythms and learning to respect and understand our surroundings is essential to live in harmony with the local/global eco-system. Also living close to each other with a sense of community is not just good for ones mental health, but also offers support for the individual when in need and enables greater resilience.
+If we manage to live naturaly like a tree in a forest, there is no waste, everything is useful for somebody else.
+The only problem is that we live seperated, like stones in a desert. In our culture there is no inspiration and guidance, even no hope on how to do it differently.
 
 What has been missing was an intelligent interactive directory of sustainable communities and ecovillages, already established or under construction, that can accomodate, teach, and employ people looking for these opportunities to create win-win opportunities between communities and individuals interested in alternative ways of living.
 
@@ -138,12 +142,13 @@ The ecobasa network supplies the resources for communication, cooperation and or
 
 How do we save the world?
 ------------
-It is actually not the planet that is waiting to be saved, as it will maintain its own stability. It is our very own "world", existing only inside of our own minds, that needs to be saved, before we extinct our species! 
-There are people who are quite close to living in peace with nature, each other and themselves. For them ecobasa can help to further enhance their living standard.
-For those who don't feel exactly happy about their way of living it provides the chance to see and live alternatives. 
+It is actually not the planet that is waiting to be saved, as it will maintain its own stability. It is our very own "world", existing only inside our own minds that needs to be saved before we extinct our species! 
+
+There are people who are quite close to living in peace with nature, each other and themselves. For them ecobasa can help to further enhance their standard of living. For those who don't feel exactly happy about their way of living it provides the chance to see and live alternatives. 
+
 The only remaining problem still is: YOU NEED TO DO IT.
-So join our network, use it and get away from the computer again quickly ;)
- 
+
+So join our network, use it and get away from the computer again quickly ;) 
 
 Sincerely yours,
 the gift-network
@@ -163,9 +168,11 @@ Communities Convergence, ecobasa.org and the Community-Tours joined forces for a
 Vision – Why we exist
 ------------
 We are striving for a healthy and sustainble society that can be a realistic alternative to the mainstream.
+
 We think that open communities that are interconnected in a larger network, can be this alternative.
 These communities form an ecosystem that provides plenty of solutions and resources. In this way the network serves a broad spectrum of human, social and environmental needs.
-We believe in the sustainability of gift-economy, because it creates supportive relationships, responsability, and a culture of trust and support. This culture alone would make the world a better place.
+
+We believe in the sustainability of gift-economy, because it creates supportive relationships, responsibility, and a culture of trust and support. This culture alone would make the world a better place.
 
 Mission – How we are achieving our vision
 ------------
@@ -205,15 +212,16 @@ We build up an umbrella organization based on a sociocracy and fractal organizat
 Values
 ------------
 
-Responsability
+Responsibility
 ------------
 
-Every person agrees to be solely responsable for defining the amount of energy and time he or she brings in as well as deciding on the roles and tasks he or she undertakes. He or she is responsable for his or her own personal development, energy level and for fulfilling whatever commitments were given.
-Any commitment to take a task or role should be communicated transparently to those whose tasks and roles are significantly connected. If a commitment can not be carried out in the form or at the time agreed with others this should also be communicated in good time.
+Every person agrees to be solely responsible for defining the amount of energy and time he or she brings in as well as deciding on the roles and tasks he or she undertakes. He or she is responsible for his or her own personal development, energy level and for fulfilling whatever commitments were given.
+Any commitment to take a task or role should be communicated transparently to those whose tasks and roles are significantly connected. 
+If a commitment can not be carried out in the form or at the time agreed with others this should also be communicated in good time.
 If there are obstacles the responsable person will tell others about it and ask for help.
 Furthermore everyone is responsable for the people around them and the place where they are.
 Each person shall be supportive of others on personal and work issues to the extent of self responsible capacity. Feedback should be constructive and supportive and objections reasonable. Non-violence in communication and action as well as respect and empathy for self and others are an agreed collective practice.
-We all are also responsable for the environment and Nature
+We all are also responsible for the environment and nature
 
 Transparency
 ------------
@@ -306,7 +314,6 @@ Become a rolling community
 Meet amazing people, share your skills with your tour mates and become an amazing team that can create gift-economy miracles together like building houses, gardens or produce a great documentary!
 
 
-
 What are the Community-Tours?
 ------------
 The community-tours empower an alternative economy based on trust and sharing. 
@@ -319,9 +326,9 @@ How does it work?
 ------------
 You can use this website to organize a tour yourself, find people to take with you, that match your skills and interests and those of the places you want to visit. You can also find people that have buses to join your tour!
 You can already see the communities that want to be visited, see what they need and find something to offer for your stay. You will get food and accommodation and a good learning experience!
-On their profiles you can see what they need. It is always good to ask for more, as they for shure need more and their profile is out of date ;)
+On their profiles you can see what they need. It is always good to ask for more, as they for sure need more and their profile is out of date ;)
 
-Then you can use our powerful search for everything to find experts, places, ressources, caravans, events and everything the community needs! Then you can contact the related people and places and visit them on your journey to finally fulfill the whishes of the communities. 
+Then you can use our powerful search for everything to find experts, places, resources, caravans, events and everything the community needs! Then you can contact the related people and places and visit them on your journey to finally fulfill the wishes of the communities. 
 Like this we create the sustainable gift-network!
 
 You can ask more people and communities to join our network, so we can find the right people and things, when we need them!
@@ -367,8 +374,8 @@ But group processes take time and energy, so as a smaller group of 3-5 people yo
 
 May the force be with you!
 ------------
-You know, young padavan, if you offer your lifetime and creative energy to this noble endevour, the universe will assist to create coincidences to make your whishes come into reality! 
-Just trust and be careful what you whish for ;)
+You know, young padavan, if you offer your lifetime and creative energy to this noble endevour, the universe will assist to create coincidences to make your wishes come into reality! 
+Just trust and be careful what you wish for ;)
 Good energies to everyone on the road, enjoy the trip!
 
 
@@ -440,11 +447,11 @@ Sailing Tips
     * The best way to find a boat in person is to network network network. Hang out at the local bars (they’re sailors!), stay close by, hitchhike around, and try to meet as many people as you can. The word of mouth is huge in the yachty world, it’s all about someone who knows someone who knows someone. If you have time, get down to the cruising area just before the season begins, and stay a while (like a month or more!). Often they are great places to hangout anyway (British Virgin Islands, Majorca, Sicily…) and small communities, so you’ll be in with the crowd in no time. Be social!
     * What experience do you need? Obviously, any time at sea, courses etc… is going to help, but don’t worry if you don’t have this. I started with nothing but a love of water. A lot of sailors will want to teach you THEIR way anyway, so having a clean slate might even help. Be prepared to offer whatever you have. Think of how your skills could be useful. Medical, cooking, and engineering, all very handy! Even a good musician can be a welcome addition to a crew. Be fit, be handy, be positive. Light hearted and fun, but sensible and with lots of common sense, that’s what most skippers will be looking for.
     * Ask about money. What is it going to cost you? The most common is that you pay for your food, and they pay the rest, but keep in mind this might be more than you would normally spend on food while on the road, so make sure you ask. Some skippers will ask you to pay a few boat costs too, mooring fees or fuel. You might be able to organize a ‘work exchange’ deal, if they need varnishing or maintenance done to the boat. Maybe they are getting hauled out, put on the hard for a week, and could really use a spare pair of hands. If you’re REALLY lucky, they will pay all the costs… and once you start getting some serious sea miles, you’ll even get PAID to go sailing!
-    * Finally, have a good think about if this is really for you. The idea of sailing off into the sunset might sound awesome, but try to imagine being at sea in rough weather, heeled over, raining and cold. Everything falling all over the place and never being still. Most watch schedules will mean 3-4 hours alone at night sailing the boat (after you have experience of course) and sleeping patterns are always erratic. You’ll be in a small space with several people (depending on the size of the boat, usually 3 or 4 crew on board) and not always in the best situations. You’ll need to keep your head together and be switched on almost 24hrs a day. Also, remember than more than HALF of your time on the boat will be spent anchored, moored, or docked somewhere. Usually this means working at putting the boat back together, installing new gadgets or waiting for the weather to change, and as crew you’re expected to help with this. It won’t all be high energy stuff. On a brighter not e – it IS everything you imagined… dolphins, sunsets, sustainable transport and using your hands to carry you along… if you’re up for it, it’s magical!
+    * Finally, have a good think about if this is really for you. The idea of sailing off into the sunset might sound awesome, but try to imagine being at sea in rough weather, keeled over, raining and cold. Everything falling all over the place and never being still. Most watch schedules will mean 3-4 hours alone at night sailing the boat (after you have experience of course) and sleeping patterns are always erratic. You’ll be in a small space with several people (depending on the size of the boat, usually 3 or 4 crew on board) and not always in the best situations. You’ll need to keep your head together and be switched on almost 24hrs a day. Also, remember than more than HALF of your time on the boat will be spent anchored, moored, or docked somewhere. Usually this means working at putting the boat back together, installing new gadgets or waiting for the weather to change, and as crew you’re expected to help with this. It won’t all be high energy stuff. On a brighter note – it IS everything you imagined… dolphins, sunsets, sustainable transport and using your hands to carry you along… if you’re up for it, it’s magical!
 
 Sleeping / Accomodation
 ------------
-If you're not a turist interested in monuments and museums, but a traveller who wants to discover more about this world and the people who live on it, it's definitely worth to look for projects to spend some time in; squats, communities, project-houses, organic farms... of course, every community has different rules about visitors, some are very easy about it and some others not so much; some ask for money and some don't. Here some networks that could help you finding a place that could be good for you:
+If you're not a turist interested in monuments and museums but a traveller who wants to discover more about this world and the people who live on it, it's definitely worth to look for projects to spend some time in; squats, communities, project-houses, organic farms... of course, every community has different rules about visitors, some are very easy about it and some others not so much; some ask for money and some don't. Here are some networks that could help you finding a place that could be good for you:
 
 HelpX
 Wwoofing (Costs a little fee)
@@ -470,20 +477,13 @@ Squats: often in occupied places you can find a very welcoming and open-minded a
 
 (or, even worse, when you're outside and you left all your stuff there); in these cases you can just say goodbye to all your belongings because usually police destroys everything. When you arrive try to ask to the people who live there if an eviction is likely to happen, usually most of them are predictable and they should know about it. Here a good website, with a lot of squats listed: http://en.squat.net/. Remember: squats are not alternative hostels for tourists: go there just if you share their values (having a contact helps a lot) and if you're interested to collaborate with them.
 
-Drivers: when you're hitchhiking try to understand if your driver (if you trust him/her) could be able to host you; usually they're very nice and if they can
+Drivers: when you're hitchhiking try to understand if your driver (if you trust him/her) could be able to host you; usually they're very nice and if they can they do it, but try to make it as spontaneous as possible (“Since I'm going to spend the night in your city, could you suggest me any place where to sleep for free?”) and NEVER force them, since they could feel in danger and this is really not nice.
 
-they do it, but try to make it as spontaneous as possible (“Since I'm going to spend the night in your city, could you suggest me any place where to sleep for free?”)
-and NEVER force them, since they could feel in danger and this is really not nice.
-
-Petrol stations: if you're hitchhiking on the highway and you don't want to go out from it for sleeping, try 24h open petrol stations; you won't sleep very well
-
-(lights are of course turned on for the whole night, and often there are movies or music as well), but it's still better than sleeping outside, most of all during the winter.
+Petrol stations: if you're hitchhiking on the highway and you don't want to go out from it for sleeping, try 24h open petrol stations; you won't sleep very well (lights are of course turned on for the whole night, and often there are movies or music as well), but it's still better than sleeping outside, most of all during the winter.
 
 Churches: if you're in a small village and you're really desperate, try to ask for the priest; you have a few chances that he's one of those few priests who still believes in the real christian message.
 
-(for Spain) Alberge: this are public dorms where you can be hosted for a limited number of days without paying anything, and quite often there are some also in smaller cities; usually people who stay there are immigrants who arrived in the city for the first time and stay there until they find another place where to go, but nobody should object if you ask to stay there for the night (if you wanna stay for longer maybe try to find another accomodation).
-
-In order to sleep there you have to give your personal datas to the employee, of course, so you have to have a document; and if you don't manage to find the Alberge, ask the police and they will tell you (and sometimes drive you as well!). I have personally experienced this just in Spain, but probably in other countries there will be something similar, try to ask!
+(for Spain) Alberge: this are public dorms where you can be hosted for a limited number of days without paying anything, and quite often there are some also in smaller cities; usually people who stay there are immigrants who arrived in the city for the first time and stay there until they find another place to go, but nobody should object if you ask to stay there for the night (if you wanna stay for longer maybe try to find another accomodation). In order to sleep there you have to give your personal datas to the employee, of course, so you have to have a document; and if you don't manage to find the Alberge, ask the police and they will tell you (and sometimes drive you as well!). I have personally experienced this just in Spain, but probably in other countries there will be something similar, try to ask!
 
 Food / Eating
 ------------
@@ -497,7 +497,7 @@ Table-diving: In restaurants and bars there's always a lot of food left after cu
 
 Dumpster-diving: very often in the garbage you can find very good stuff; check most of all in front of supermarkets and restaurants... Here is a link for good dumpsterdiving spots and technique tricks: http://trashwiki.org/en/Main_Page
 
-Hosts: even though you cannot count on it, many couchsurfers or people who host you will actually invite you dinner.
+Hosts: even though you cannot count on it, many couchsurfers or people who host you will actually invite you for dinner.
 
 Drivers: very often if you establish a good contact with them they will invite you for lunch or, more probably, if they're carrying food in their car, they will share it with you.
 
@@ -559,9 +559,9 @@ Communities may have many different forms and practices and all hold a piece of 
 
 The gift-economy experiment
 ---------------------------
-We charge no event fees but we decided not to pay in advance for the food and accommodations of those attending as it is a big effort for our team but rather to engage participants to assume co-responsibility for this gift. We would love to support any and all participants who want to take part actively in the convergences to be able to join without being blocked by money.
+We charge no event fees but we decided not to pay in advance for the food and accommodation of those attending as it is a big effort for our team but rather to engage participants to assume co-responsibility for this gift. We would love to support any and all participants who want to take part actively in the convergences to be able to join without being blocked by money.
 
-If this is to be possible and sustainable we must be able to support those who are devoted and working for this project and to make solidarity funds to support participants who can not pay for basic food and acomodations. We are friend-funding so please support our work and especially if you want to come: buy the only ticket you can buy for a CC – the Gift ticket!
+If this is to be possible and sustainable we must be able to support those who are devoted and working for this project and to make solidarity funds to support participants who can not pay for basic food and acomodation. We are friend-funding so please support our work and especially if you want to come: buy the only ticket you can buy for a CC – the Gift ticket!
 
 How do we converge?
 -------------------
